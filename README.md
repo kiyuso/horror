@@ -13,4 +13,6 @@ The movie: We knew it was on the way, but post-pandemic horror has already arriv
 The movie: It might have reignited the so-called torture porn genre with its (mostly) truly disgusting sequels but - and this is a huge ‘but’ - the original Saw is nowhere near as gross-gusting as you think it is and happens to be brilliant horror. Yes, the title is about an implement that a depraved killer suggests someone takes their leg off with rather than use a key to unlock a cuff, but Saw is actually remarkably restrained. The ideas at work here are significantly more grisly in your own mind than what you see on screen. Made on a shoestring budget by Leigh Whannell and James Wan, this tale of two men waking up in a bathroom, a corpse between them, is twisted but constantly intriguing. 
 
 ## The Birds (1963)
-![Branching]
+![Branching](hdhd.jpg)
+
+The movie: Sure, there’s all that talk about showers and murder - Editor’s note: we know it’s not just ‘talk’ and Hitchcock’s Psycho is a genuine horror masterpiece - but it’s time to talk about the feathery elephant in the room. The Birds, the Master of Suspense’s loose adaptation of a short story of the same name by Daphne du Maurier, is scare cinema at its finest. When Tippi Hedren’s Melanie Daniels heads to Bodega Bay to deliver some love birds, she gets far more than she bargained for when the wild winged inhabitants of the town decide that human eyes might taste just as good as discarded chips. 
